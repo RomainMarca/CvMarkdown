@@ -19,7 +19,7 @@ Grand maitre de l'Univers, Je sais me montrer magnanime avec les simples mortels
 
 ## __Hobbies__
 
-**MOUHAHAHA**, Comme tous les soirs Minus, tentez de conquérir le monde!!!
+**MOUHAHAHA**, Comme tous les soirs Minus, tenter de conquérir le monde!!!
 
 ### __Lien utiles__ 
 
