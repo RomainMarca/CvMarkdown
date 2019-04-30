@@ -7,7 +7,7 @@ Grand maitre de l'Univers, Je sais me montrer magnanime avec les simples mortels
 ## __Formation__
 
 Maitre de Formation: 
-* Thanos
+    * Thanos
     * Kira
     * Sauron
 
@@ -23,11 +23,13 @@ Maitre de Formation:
 
 ### __Lien utiles__ 
 
-[My github] (https://github.com/RomainMarca)
+My github (https://github.com/RomainMarca)
+
 [My LinkedIn] (https://www.linkedin.com/in/romain-marca-527469168/)
+
 [My Favorite death site] (https://disney.fr/)
 
 #### __Ma Photo__
 
-![photo] (http://fr.web.img6.acsta.net/r_1280_720/medias/nmedia/18/36/09/16/18452089.jpg)
+![http://fr.web.img6.acsta.net/r_1280_720/medias/nmedia/18/36/09/16/18452089.jpg]
 
