@@ -13,7 +13,7 @@ Grand maitre de l'Univers, Je sais me montrer magnanime avec les simples mortels
 
 ## __Expérience pro__
 
-* Exinction par mes soins de la galaxie eG3567-9.
+* Extinction par mes soins de la galaxie eG3567-9.
 * Gouverne 8 planétes dont 2 anciennes races.
 * Je sais faire mes lacets et compter de 2 en 2 ...
 
