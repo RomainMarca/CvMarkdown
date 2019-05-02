@@ -10,6 +10,7 @@ Grand maitre de l'Univers, Je sais me montrer magnanime avec les simples mortels
     * Thanos
     * Kira
     * Sauron
+    * Bastien
 
 ## __Expérience pro__
 
